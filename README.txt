@@ -1,0 +1,1 @@
+These notes are basically colored notes and they are not my own property, but the ucalgary's notes.
